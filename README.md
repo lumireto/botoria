@@ -1,0 +1,2 @@
+# botoria
+BOTORIA サポート・プライバシーポリシー
